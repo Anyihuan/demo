@@ -1,2 +1,2 @@
 # Lain
-work work work...
+学习.
